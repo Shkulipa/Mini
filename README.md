@@ -1,1 +1,1 @@
-https://shkulipa.github.io/Mini/.
+https://shkulipa.github.io/Mini/
